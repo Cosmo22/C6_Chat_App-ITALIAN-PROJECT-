@@ -12,4 +12,4 @@ Se pensi che questo progetto possa interessarti contattami in privato via mail.
 
 Grazie per l'attenzione.
 
-Luca T.
+Luca
